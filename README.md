@@ -47,7 +47,7 @@
 ###
 Ohmygod its so hard Github but ahem... HI!
 
-download (21)
+
 
 Nice to meet you! DNI mappride + DARKSHIP + ageplays + weird like.. REALLY WEIRD people.
 
@@ -56,3 +56,8 @@ C+H freely :33, Pls I can't stand alone in pony town anymore SCREAMS 💔
 Bleeeh!!!1!1 I've been drawing since 2021-2025!
 
 If you want to play and talk more with me, just send me a message! ^3^
+
+「 ✦  busy in School✦ 
+  August 18th ⊹ ࣪ ˖
+ּ ֶָ֢. Artist -   💻ྀི
+[ ` Storyboarder,,. ]
