@@ -97,7 +97,21 @@ If you want to play and talk more with me, just send me a message! ^3^
 
 ` Multifandom 
 ` Multishipper 
-- ( my favorite color is blue and black ^^ )- https://gifcity.carrd.co/assets/images/gallery81/9aa47f49.gif?v=e3c0bc0f https://gifcity.carrd.co/assets/images/gallery84/7cd04743.gif?v=e3c0bc0f
+- ( my favorite color is blue and black ^^ )- <div align="center">
+  <img height="200" src="https://gifcity.carrd.co/assets/images/gallery84/7cd04743.gif?v=e3c0bc0f"  />
+</div>
+
+###
+
+<div align="center">
+  <img height="200" src="https://gifcity.carrd.co/assets/images/gallery81/9aa47f49.gif?v=e3c0bc0f"  />
+</div>
+
+###
+
+<h5 align="left">I LOVE SOLARBALLS!!!!1!11!1!1!</h5>
+
+###
 
 I'm a little more comfortable with the pronoun he/his, but you can call me she/her if you want.
 
