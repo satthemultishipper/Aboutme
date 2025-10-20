@@ -62,4 +62,33 @@ If you want to play and talk more with me, just send me a message! ^3^
 ּ ֶָ֢. Artist -   💻ྀི
 [ ` Storyboarder,,. ]
 
-https://gifcity.carrd.co/assets/images/gallery49/ca5a5dc0.gif?v=e3c0bc0f
+<div align="center">
+  <img height="200" src="https://gifcity.carrd.co/assets/images/gallery49/ca5a5dc0.gif?v=e3c0bc0f"  />
+</div>
+
+###
+
+<h4 align="left">Comfort characters: John Grace, angeredfish, Dozer, John reprieve, Stolas from helluva boss, exclamation Mark and others! Andd panda ^^</h4>
+
+###
+
+<div align="center">
+  <img height="200" src="https://gifcity.carrd.co/assets/images/gallery261/f462bf56.gif?v=e3c0bc0f"  />
+</div>
+
+###
+
+<h5 align="left">”Im not gonna sugarcoat it!!1!11!1!”</h5>
+
+###
+
+<div align="center">
+  <img height="200" src="https://gifcity.carrd.co/assets/images/gallery85/55529aa2.png?v=e3c0bc0f"  />
+</div>
+
+###
+
+<p align="left">AAAAAAA!!1!1!1!1!</p>
+
+###
+
