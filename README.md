@@ -61,3 +61,5 @@ If you want to play and talk more with me, just send me a message! ^3^
   August 18th ⊹ ࣪ ˖
 ּ ֶָ֢. Artist -   💻ྀི
 [ ` Storyboarder,,. ]
+
+https://gifcity.carrd.co/assets/images/gallery49/ca5a5dc0.gif?v=e3c0bc0f
